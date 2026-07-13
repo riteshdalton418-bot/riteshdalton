@@ -27,4 +27,4 @@ To build my career as an HSE professional and contribute towards creating safe a
 
 ### Connect With Me
 
-LinkedIn: Add your LinkedIn profile link here
+LinkedIn: Add your LinkedIn profile link here.
