@@ -27,4 +27,7 @@ To build my career as an HSE professional and contribute towards creating safe a
 
 ### Connect With Me
 
-LinkedIn: Add your LinkedIn profile link here.
+LinkedIn: https://www.linkedin.com/in/ritesh-dalton-b677a9240
+Facebook : https://www.facebook.com/riteshkumar.kumar.583671/photos/
+Instagram: https://www.instagram.com/riteshdalton/
+
