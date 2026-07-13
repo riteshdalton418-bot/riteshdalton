@@ -13,13 +13,28 @@ I am an aspiring Health, Safety and Environment (HSE) professional currently pur
 
 ### Skills
 
+- ## HSE Skills
+
+- Health & Safety Management
 - Risk Assessment
 - Hazard Identification
-- Workplace Safety
+- Job Safety Analysis (JSA)
 - Incident Investigation
-- HSE Documentation
+- Toolbox Talks
+- Workplace Inspection
 - Fire Safety
-- Occupational Health & Safety
+- PPE Management
+- Safety Documentation
+
+  ## Certifications & Training
+
+- IOSH Managing Safely (IOSH MS) | Green World Group | Cert No. 91583539-01-04YG | April 2026
+- Behaviour Based Safety Management (BBSM) — CPD Certified | Green World Group | Cert No. hm9VA0KjkQ | January 2026
+- First Aid at Work | Green World Group | Cert No. v48VONZiRO | January 2026
+- Essentials of Fire Safety Principles | Green World Group | Cert No. boH9kySoeV | January 2026
+- Applied Workplace Safety Compliance — CPD Standards Office | Green World Group | Cert No. IhWnlP5ZFu | January 2026
+- NEBOSH International General Certificate (IGC) | In Progress — Expected Completion 2026-27
+- Advanced Diploma in Occupational Safety, Health, and Environment Management | In Progress — Expected Completion 2026-27
 
 ### Career Objective
 
